@@ -38,6 +38,6 @@
 35. Anonym DC777
 36. luko#0772 DC
 
-# PC LIST
+# STOCKX LIST
 1. Rose.#6969
 2. mombanger322 Tele
